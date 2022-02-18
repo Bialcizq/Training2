@@ -1,2 +1,2 @@
 # Training2
-asdasd
+https://www.2ez.pl/strony-typu-wizytowka/
